@@ -1,2 +1,5 @@
 # Hello-World
-Interested in creating software,applications,a student who wants to broaden her knowledge about the world of technology
+Hi Everybody
+  AJ here!
+  i love ice creams, hot sandwiches ,apple pie, crazy softwares.
+  Crazy games,thats what i'm made of.
